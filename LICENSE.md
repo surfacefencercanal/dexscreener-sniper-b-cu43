@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with MEV-optimized dexscreener sniper bot | low-cap-gem-detection + stop-loss, the #1 dexscreener sniper bot. Includes low-cap-gem-detection and stop-loss for
 
 
 
